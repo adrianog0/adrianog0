@@ -9,7 +9,7 @@
 
 ## 📫 Como me encontrar
 
-LinkedIn: linkedin.com/in/adrianogou  
+LinkedIn: www.linkedin.com/in/adrianogou  
 Email: adriano_tb18@hotmail.com
 
 ---
